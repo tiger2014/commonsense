@@ -1,2 +1,1 @@
-# commonsense
-《关于中国的一百个常识》
+<img src="http://gfw-breaker.win/tmk.jpg"/>
